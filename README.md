@@ -1,4 +1,5 @@
-# saminamina ay ay 
-# waka waka ahiy ay
-# saminamina san cali wah
-# its time for africa
+# https://discord.gg/MqvmBu5tWa
+## Main Socials
+Github: kit2d2alt (ironic I know)
+Youtube: @cateroni
+Discord: kit2d2
